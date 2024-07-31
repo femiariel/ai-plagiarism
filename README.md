@@ -1,1 +1,1 @@
-Repo pou paraphrasing en bref
+Repo pour paraphrasing en bref
